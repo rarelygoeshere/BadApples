@@ -7,4 +7,4 @@
 # [TDVEWin10GCUser](https://www.youtube.com/@TDVEWin10GCUser)
 - [January 7, 2024 - Youtube -  Bad Apple but is a Windows Virus (First 2024 video)](https://www.youtube.com/watch?v=eFSVK3B7yTs)/[Mirror](https://www.youtube.com/watch?v=kjTYVHcTA-E)
 # [montymintypie](https://www.youtube.com/@montymintypie)
-- [August 1, 2023 - Youtube - Bad Apple but it's a Windows virus](https://www.youtube.com/watch?v=EZpZwunMzuE)
+- [August 1, 2023 - Youtube - Bad Apple but it's a Windows virus](https://www.youtube.com/watch?v=EZpZwunMzuE)/[Mirror](https://www.youtube.com/watch?v=59ZUIo--uZ0)
