@@ -5,6 +5,6 @@
 # [Klinbee](https://www.youtube.com/@Klinbee)
 - [September 26, 2024 - Youtube - Bad Apple!! but it's a Minecraft World](https://www.youtube.com/watch?v=RN3QW9SVnds)/[Mirror](https://www.youtube.com/watch?v=sdF9y3UFR58)
 # [TDVEWin10GCUser](https://www.youtube.com/@TDVEWin10GCUser)
-- [January 7, 2024 - Youtube -  Bad Apple but is a Windows Virus (First 2024 video)](https://www.youtube.com/watch?v=eFSVK3B7yTs)
+- [January 7, 2024 - Youtube -  Bad Apple but is a Windows Virus (First 2024 video)](https://www.youtube.com/watch?v=eFSVK3B7yTs)/[Mirror](https://www.youtube.com/watch?v=kjTYVHcTA-E)
 # [montymintypie](https://www.youtube.com/@montymintypie)
 - [August 1, 2023 - Youtube - Bad Apple but it's a Windows virus](https://www.youtube.com/watch?v=EZpZwunMzuE)
