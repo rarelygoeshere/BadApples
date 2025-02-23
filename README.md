@@ -19,8 +19,8 @@
 - [Bad Apple using Diffractive Optical Element WIP](https://www.youtube.com/watch?v=G_HDjA2D59E)/[Mirror](https://www.youtube.com/watch?v=CpaZAY6Z6MU) Published on April 21, 2021
 ## [XA10C4](https://www.youtube.com/@XA10C49876)
 - [Bad Apple !! - Tesla coil + LaserShow](https://www.youtube.com/watch?v=nNC6aTSKiwk)/[Mirror](https://www.youtube.com/watch?v=yNQRabM6H10) Published on March 28, 2021
-
-- 
+## [TheBackyardScientist](https://www.youtube.com/@TheBackyardScientist)/[Twitter](https://x.com/ChemicalKevy)
+- [[]Video Timestamp](https://www.youtube.com/watch?v=SXeeRgEY2UE&t=660s)
 https://www.youtube.com/watch?v=IKXDyKWXBhk
 bad apple on everything from lasers and old soviet technology to stop motion and video game maps.
 
