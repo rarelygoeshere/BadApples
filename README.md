@@ -17,6 +17,8 @@
 ## [Hans Chiu 2](https://www.youtube.com/@hanschiu3d)
 - [Bad Apple but it's laser diffraction](https://www.youtube.com/watch?v=3rBrQOcH6o0)/[Mirror](https://www.youtube.com/watch?v=j8P3HhXT0WI) Published on April 29, 2021
 - [Bad Apple using Diffractive Optical Element WIP](https://www.youtube.com/watch?v=G_HDjA2D59E)/[Mirror](https://www.youtube.com/watch?v=CpaZAY6Z6MU) Published on April 21, 2021
+## [XA10C4](https://www.youtube.com/@XA10C49876)
+- [Bad Apple !! - Tesla coil + LaserShow](https://www.youtube.com/watch?v=nNC6aTSKiwk)/[Mirror](https://www.youtube.com/watch?v=yNQRabM6H10) Published on March 28, 2021
 
 - 
 https://www.youtube.com/watch?v=IKXDyKWXBhk
