@@ -14,3 +14,8 @@
 - [Bad Apple on One Million Checkboxes site](https://x.com/delatoid/status/1806130369269580081) Published on June 27, 2024
 
 https://www.youtube.com/watch?v=IKXDyKWXBhk
+bad apple on everything from lasers and old soviet technology to stop motion and video game maps.
+
+I have even seen one version played on clouds.
+
+And there is also Bad Apple rolling down the amogus. 
