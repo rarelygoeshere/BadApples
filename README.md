@@ -20,7 +20,7 @@
 ## [XA10C4](https://www.youtube.com/@XA10C49876)
 - [Bad Apple !! - Tesla coil + LaserShow](https://www.youtube.com/watch?v=nNC6aTSKiwk)/[Mirror](https://www.youtube.com/watch?v=yNQRabM6H10) Published on March 28, 2021
 ## [TheBackyardScientist](https://www.youtube.com/@TheBackyardScientist)/[Twitter](https://x.com/ChemicalKevy)
-- [[]Video Timestamp](https://www.youtube.com/watch?v=SXeeRgEY2UE&t=660s)
+- [Bad Apple on an oscilloscope as the ending bit for a video about lasers](https://x.com/TouhouHijackLOL/status/1858267297414307863)/[]Video Timestamp](https://www.youtube.com/watch?v=SXeeRgEY2UE&t=660s)
 https://www.youtube.com/watch?v=IKXDyKWXBhk
 bad apple on everything from lasers and old soviet technology to stop motion and video game maps.
 
@@ -28,6 +28,8 @@ I have even seen one version played on clouds.
 
 And there is also Bad Apple rolling down the amogus. 
 
-# sources
+# Sources
+This is the sources where I get all the Bad Apple variations and derivatives from. The list might not be exhaustive.
+- [r/ItPlaysBadApple](https://www.reddit.com/r/ItPlaysBadApple)
 - [Awesome Bad Apple!!](https://github.com/oofdere/awesome-badapple) Published on April 26, 2023
 - [Awesome Bad Apple](https://github.com/sortedcord/awesome-bad-apple) Published on September 26, 2021
