@@ -27,6 +27,9 @@
 - [OpenLase Simulator (Bad Apple)](https://www.youtube.com/watch?v=H9rfNG0tqzs)/[Mirror](https://www.youtube.com/watch?v=q02aPmqkZ6M) Published on January 18, 2011
 - [Bad Apple on the laser scanner](https://www.youtube.com/watch?v=uJaAYD0YT44)/[Mirror](https://www.youtube.com/watch?v=rSDfaxBS4To) Published on October 7, 2010
 ## [Appel Works](https://www.youtube.com/@AppelWorksC)
+- [MMD + Touhou - Bad Apple!! PV non 3D](https://www.youtube.com/watch?v=7n13wZzPTgw) Published on October 5, 2010
+- [【 Touhou Lasershow 】 Bad 445 Aaaaaaapple (HD)](https://www.youtube.com/watch?v=UkJ_9bBn-Hc) Published on September 23, 2010
+- [【Electronica & DIY stuff】 Bad Apple!! on LCD Screen 128x64 & chiptunes (HD)](https://www.youtube.com/watch?v=FDBVCNdWQCk) Published on November 25, 2009
 - [【Lasershow】 Touhou ~ Bad Apple!!　(Stylized Laser Art) (HD)](https://www.youtube.com/watch?v=nKavqWoifWA)/[Niconico](https://www.nicovideo.jp/watch/sm8853380) Published on October 31, 2009
 https://www.youtube.com/watch?v=IKXDyKWXBhk
 bad apple on everything from lasers and old soviet technology to stop motion and video game maps.
