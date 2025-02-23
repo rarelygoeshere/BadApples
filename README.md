@@ -21,7 +21,8 @@
 - [Bad Apple !! - Tesla coil + LaserShow](https://www.youtube.com/watch?v=nNC6aTSKiwk)/[Mirror](https://www.youtube.com/watch?v=yNQRabM6H10) Published on March 28, 2021
 ## [TheBackyardScientist](https://www.youtube.com/@TheBackyardScientist)/[Twitter](https://x.com/ChemicalKevy)
 - [Bad Apple on an oscilloscope as the ending bit for a video about lasers](https://x.com/TouhouHijackLOL/status/1858267297414307863)/[Clip Mirror](https://files.catbox.moe/4gomjs.mp4)/[Full official footage](https://x.com/ChemicalKevy/status/1620995433870036993)/[Mirror](https://files.catbox.moe/1xtjtt.mp4)/[Video Timestamp](https://www.youtube.com/watch?v=SXeeRgEY2UE&t=660s)/[Video mirror](https://www.youtube.com/watch?v=7XiV2VmJTzw) Published on  February 1, 2023
-
+## [marcan](https://www.youtube.com/@marcan42)
+- [Bad Apple on the laser scanner](https://www.youtube.com/watch?v=uJaAYD0YT44)/[Mirror](https://www.youtube.com/watch?v=rSDfaxBS4To) Published on October 7, 2010
 https://www.youtube.com/watch?v=IKXDyKWXBhk
 bad apple on everything from lasers and old soviet technology to stop motion and video game maps.
 
