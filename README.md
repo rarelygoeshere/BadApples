@@ -31,6 +31,9 @@
 - [【 Touhou Lasershow 】 Bad 445 Aaaaaaapple (HD)](https://www.youtube.com/watch?v=UkJ_9bBn-Hc) Published on September 23, 2010
 - [【Electronica & DIY stuff】 Bad Apple!! on LCD Screen 128x64 & chiptunes (HD)](https://www.youtube.com/watch?v=FDBVCNdWQCk) Published on November 25, 2009
 - [【Lasershow】 Touhou ~ Bad Apple!!　(Stylized Laser Art) (HD)](https://www.youtube.com/watch?v=nKavqWoifWA)/[Niconico](https://www.nicovideo.jp/watch/sm8853380) Published on October 31, 2009
+
+## [FHaze](https://www.youtube.com/@FHaze7)
+- [Laser show animation made in QuickShow (.qshw) format from Touhou Bad Apple Music video](https://www.youtube.com/watch?v=IqGk_c-6ML4)/[Thread](https://www.photonlexicon.com/forums/showthread.php/25192-QuickShow-Touhou-Bad-Apple) Published on February 15, 2016
 https://www.youtube.com/watch?v=IKXDyKWXBhk
 bad apple on everything from lasers and old soviet technology to stop motion and video game maps.
 
