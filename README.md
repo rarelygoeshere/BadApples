@@ -9,10 +9,16 @@
 # [montymintypie](https://www.youtube.com/@montymintypie)
 - [Bad Apple but it's a Windows virus](https://www.youtube.com/watch?v=EZpZwunMzuE)/[Mirror](https://www.youtube.com/watch?v=59ZUIo--uZ0) Published on August 1, 2023
 # [eieio.games](https://eieio.games/)
-- [vim-badapple](https://eieio.games/blog/bad-apple-with-regex-in-vim/)/[Github](https://github.com/nolenroyalty/vim-badapple) Bad Apple in Vim. Published on January 10, 2025
+- [Bad Apple with Regex in Vim](https://eieio.games/blog/bad-apple-with-regex-in-vim/)/[Github](https://github.com/nolenroyalty/vim-badapple) Bad Apple in Vim. Published on January 10, 2025
 # [delatoid](https://x.com/delatoid)
 - [Bad Apple on One Million Checkboxes site](https://x.com/delatoid/status/1806130369269580081) Published on June 27, 2024
+# [mailo18](https://www.reddit.com/user/mailo18/)
+- [Bad Apple, but a laser is transmiting the song](https://www.reddit.com/r/touhou/comments/17mk9yb/bad_apple_but_a_laser_is_transmiting_the_song/)/[Mirror](https://www.youtube.com/watch?v=vLC1KZ5u2pc&feature=youtu.be) Published on November 3, 2023
+# [Hans Chiu 2](https://www.youtube.com/@hanschiu3d)
+- [Bad Apple but it's laser diffraction](https://www.youtube.com/watch?v=3rBrQOcH6o0)/[Mirror](https://www.youtube.com/watch?v=j8P3HhXT0WI) Published on April 29, 2021
+- [Bad Apple using Diffractive Optical Element WIP](https://www.youtube.com/watch?v=G_HDjA2D59E)/[Mirror](https://www.youtube.com/watch?v=CpaZAY6Z6MU) Published on April 21, 2021
 
+- 
 https://www.youtube.com/watch?v=IKXDyKWXBhk
 bad apple on everything from lasers and old soviet technology to stop motion and video game maps.
 
