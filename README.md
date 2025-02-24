@@ -39,7 +39,7 @@
 
 https://www.youtube.com/watch?v=IKXDyKWXBhk
 bad apple on everything old soviet technology to stop motion and video game maps.
-
+ Bad Apple!! on a Command Line Interface (CLI)
 I have even seen one version played on clouds.
 
 And there is also Bad Apple rolling down the amogus. 
