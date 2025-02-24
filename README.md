@@ -40,6 +40,7 @@
 ## [PurpleJay](https://www.youtube.com/@purplejay8030)
 - [Bad Apple with Video to ASCII-Characters](https://www.youtube.com/watch?v=cs5IG3gt18g) Published on February 11, 2022
 
+https://purplesyringa.moe/blog/we-built-the-best-bad-apple-in-minecraft/ Check this for more content
 https://www.youtube.com/watch?v=IKXDyKWXBhk
 bad apple on everything old soviet technology to stop motion and video game maps.
  Bad Apple!! on a Command Line Interface (CLI)
