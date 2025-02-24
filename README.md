@@ -37,6 +37,8 @@
 - [Bad Apple!! in Windows Console as ASCII art](https://github.com/Pasc99/text2BAinWinConsole) Published on January 9, 2018
 ## [Hexagon II](https://www.youtube.com/@HexagonII)/[Github](https://github.com/CalvinLoke)
 - [Bad Apple printed out on the console with Python](https://github.com/CalvinLoke/bad-apple)/[Video 1 (March 20, 2021)](https://www.youtube.com/watch?v=AZfrXrk3ZHc)/[Video 2 (February 7, 2022)](https://www.youtube.com/watch?v=bKWNj9efQUE) Published on March 19, 2021
+## [PurpleJay](https://www.youtube.com/@purplejay8030)
+- [Bad Apple with Video to ASCII-Characters](https://www.youtube.com/watch?v=cs5IG3gt18g) Published on February 11, 2022
 
 https://www.youtube.com/watch?v=IKXDyKWXBhk
 bad apple on everything old soviet technology to stop motion and video game maps.
